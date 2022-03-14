@@ -1,1 +1,1 @@
-# theoneatfault.github.com
+# theoneatfault.github.io
